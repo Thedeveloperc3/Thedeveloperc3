@@ -1,4 +1,4 @@
-# 💫𝚃𝙷𝙴 𝙳𝙴𝚅𝙴𝙻𝙾𝙿𝙴𝚁03🥵
+# 💫𝚃𝙷𝙴 𝙳𝙴𝚅𝙴𝙻𝙾𝙿𝙴𝚁03
 <img src="https://telegra.ph/file/c69a935009ad50a703032.jpg"/>
  <div align="center">  
    <a href="https://git.io/typing-svg"><img 
